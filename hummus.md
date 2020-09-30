@@ -6,11 +6,6 @@
 3 tbsp tahini
 mixed crudités and toasted pitta bread, to serve (optional)
 
-# Method
-STEP 1
-Thoroughly rinse the chickpeas in a colander under cold running water. Tip into the large bowl of a food processor along with 60ml of the oil and blitz until almost smooth. Add the garlic, lemon and tahini along with 30ml water. Blitz again for about 5 mins, or until the hummus is smooth and silky.
+#instructionsssss
 
-STEP 2
-Add 20ml more water, a little at a time, if it looks too thick. Season and transfer to a bowl. Swirl the top of the hummus with the back of a dessert spoon and drizzle over the remaining oil. Serve with crunchy crudités and toasted pitta bread, if you like.
-
-
+I forgot what he said so this is what you're getting :) 
