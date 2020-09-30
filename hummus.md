@@ -13,4 +13,5 @@ Thoroughly rinse the chickpeas in a colander under cold running water. Tip into 
 STEP 2
 Add 20ml more water, a little at a time, if it looks too thick. Season and transfer to a bowl. Swirl the top of the hummus with the back of a dessert spoon and drizzle over the remaining oil. Serve with crunchy crudités and toasted pitta bread, if you like.
 
-
+STEP 3
+Enjoy with some toasted pitta bread and some wine
