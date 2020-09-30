@@ -6,6 +6,8 @@
 3 tbsp tahini
 mixed crudités and toasted pitta bread, to serve (optional)
 
+<<<<<<< HEAD
 #instructionsssss
 
 I forgot what he said so this is what you're getting :) 
+
